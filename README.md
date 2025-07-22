@@ -1,1 +1,0 @@
-# celiksan-pompa-son
